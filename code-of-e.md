@@ -51,4 +51,4 @@ Y8,            8b       d8  8b       88  8PP"""""""     8b       d8   88        
 **"Note:** _This is a personal project, guided entirely by my own, non-industry standards, rules, and ethics. Any offense taken, perceived insult, or subjective discomfort caused by any part of this project's principles will be met with complete and utter indifference._" 😊
 
 ---
-COe by eooo | v2025.1
+COe by eooo + his friend Skippy | v2025.1
